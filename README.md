@@ -1,0 +1,1 @@
+# Basit_Uygulamalar_2
